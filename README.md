@@ -1,0 +1,2 @@
+# ScriptPaid
+TrgPhzDz
